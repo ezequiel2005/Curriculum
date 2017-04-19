@@ -1,1 +1,1 @@
-Hay esta mi currulum web y en formato doc.
+HAY ESTAN MI CURRICULUM VITAE, TANTO EN FORMATO WEB COMO EN DOCX!
